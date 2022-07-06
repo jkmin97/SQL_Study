@@ -12,3 +12,8 @@ https://continuous-fontina-dbc.notion.site/2022-07-06-Oracle-c516fb226a07474abd3
 
 2022-07-06
 Oracle 복습
+
+https://continuous-fontina-dbc.notion.site/2022-07-06-Oracle-c516fb226a07474abd3bb7e7bab54b37
+
+2022-07-07
+Oracle복습 ++
